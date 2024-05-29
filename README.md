@@ -6,4 +6,6 @@
 
 
 ### voce entra em contato comigo atraves de 📫
- - rafaelalmei2020@gmail.com 
+ - rafaelalmei2020@gmail.com
+
+![](https://media1.tenor.com/m/U7WkoJaEwEUAAAAC/sadgecry-sadge.gif)
